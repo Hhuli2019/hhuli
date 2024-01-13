@@ -4,9 +4,9 @@
 
 ## 导 航 永 久 域 名 
 
-## ⭐️ 👉 网址一 ：[https://gkdgo.com/?packer/](https://gkdgo.com/?packer/0200)
+## ⭐️ 👉 网址一 ：[https://gkdgo.com/](https://gkdgo.com/)
 
-## ⭐️ 👉 网址二 ：[https://gkdgo.com/?packer/](https://gkdgo.com/?packer/0200)
+## ⭐️ 👉 网址二 ：[https://gkdgo.com/](https://gkdgo.com/)
 
 ## ⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️
 
