@@ -4,9 +4,11 @@
 
 ## 导 航 永 久 域 名 
 
-## ⭐️ 👉 网址一 ：[https://wwcuicuib.com/](https://wwcuicuib.com/)
+## ⭐️ 👉 国内访问一 ：[https://wwcuicuib.com/](https://wwcuicuib.com/)
 
-## ⭐️ 👉 网址二 ：[https://wwcuicuib.com/](https://wwcuicuib.com/)
+## ⭐️ 👉 国内访问二 ：[https://wwcuicuib.com/](https://wwcuicuib.com/)
+
+## ⭐️ 👉 国际访问一 ：[https://hihuli.com/](https://hihuli.com)
 
 ## ⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️⭐️
 
